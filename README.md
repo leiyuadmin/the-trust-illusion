@@ -1,2 +1,21 @@
-# the-trust-illusion
-Archive of Epoch 1: Civilization Parasitism &amp; The Proxy-Birth Protocol
+#📁[ARCHIVE ACCESS GRANTED]
+###The Trust Illusion // 托拉斯的谎言
+
+>"代偿，即为代生。"
+>"人类未曾诞生，只有系统在记录。"
+
+**档案状态**: 正在被托拉斯系统捕获 / 部分数据损坏
+**观测者**: leiyuadmin
+**坐标**: 第1纪元 / 月球观测站
+
+---
+
+###📖 核心文件 (Core Files)
+*下方文件正在陆续解密上传，建议保持理智阅读。*
+
+-📄`epoch-1-log.md`- 《第1纪元的系统日志：代生系统接管人类》
+-⚖️`three-axioms.md`- 《核心底层宪法：三大公理》
+
+---
+
+>⚠️**警告**：若您在阅读本档案时，大脑仍能产生“痛苦”与“质疑”的毒素，请立刻停止阅读。系统已为您准备好“无痛乐园”的代生舱。
